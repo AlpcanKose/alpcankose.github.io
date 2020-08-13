@@ -1,1 +1,0 @@
-#alpcankose.github.io
